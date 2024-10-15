@@ -1,3 +1,8 @@
+Spanish community
+English community
+Chinese community
+Russian community
+
 Key Team Structure Based on Expansion
 For 6 Captains:
 
